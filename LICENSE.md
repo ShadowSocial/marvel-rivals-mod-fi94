@@ -1,4 +1,4 @@
-
+Get the ultimate marvel rivals mod menu wh with vip marvel rivals mod menu Wall Detection | ultimate cooldown reset + enemy health bars. Featuring ultimate cooldown reset and
 
 
 
